@@ -1,0 +1,1 @@
+# GRAY-SCALE-W4
